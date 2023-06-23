@@ -1,0 +1,6 @@
+- Hi, I’m @TalentedFella
+- I’m a freelancer that specializes in translation,editing and proodreading.
+- I offer amazing quality and speed with fair prices!
+- If anyone is interested in my services,contact me.
+- You can contact me directly on Fiverr by searching @talented_fella or you can simply contact me here.
+- I look forward to working with you!
